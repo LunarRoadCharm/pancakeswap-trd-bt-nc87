@@ -1,4 +1,4 @@
-# 
+# ultimate bot de negociação OKX plugins é o melhor bot de negociação OKX plugins com gestão de riscos e alta frequência. Seguro, confiável e otimizado para estratégias de
 
 
 
